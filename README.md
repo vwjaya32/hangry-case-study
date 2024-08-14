@@ -1,1 +1,0 @@
-# hangry-case-study
